@@ -17,7 +17,7 @@ After the war, German was jointly under the control of France, the United Kingdo
 
 Air Freight Service After 1990
 The number of air freight actually enlarged during the 1990s due to the rise of UPS, FedEx, and their competitors in express parcel delivery. Moreover, technology even formed higher traffic in this stream. All credit goes to the internet that can track real-time flight data with increased visibility within the industry of  Air Freight  Australia . It was the growth of global e-commerce that fueled the growth of air cargo and air freight service as well. Nowadays, transferring goods from one place to another has become a business practice. In the past decade, the blast of e-commerce has made the establishment of air freight even more central to the world economy.
-<A HREF=” https://www.linklogistics.com.au/services/air-freight-australia/”> Air Freight  Australia </A>  
+t.ly/3L5O 
 
 ---
 
